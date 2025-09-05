@@ -5,7 +5,7 @@ nie jestem gejem tomek
 jesteem ~Tomek
 
 
-smierdzę ~BOniek
+smierdzisz ~BOniek
 
 
 
