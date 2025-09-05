@@ -2,7 +2,7 @@ jetsemgejem
 nie jestem gejem tomek 
 
 
-jesteś ~Tomek
+jesteem ~Tomek
 
 
 smierdzę ~BOniek
