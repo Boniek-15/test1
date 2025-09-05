@@ -6,3 +6,8 @@ jesteś ~Tomek
 
 
 smierdzę ~BOniek
+
+
+
+
+nbie jestemgejem, ty jestes ~Boniek****
